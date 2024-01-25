@@ -14,7 +14,7 @@
  
 <br>
  
-### Começando meus estudos na area
+### Começando meus estudos na área
  
 <div> 
  
